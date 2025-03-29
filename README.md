@@ -10,7 +10,7 @@
  
   
 <a href="[[https://whatsapp.com/channel/0029VarDt9t30LKL1SoYXy26]">
- <img alt="DARK-UCEY TECH" height="350" src="https://files.catbox.moe/w5xf3f.jpg">
+ <img alt="DARK-UCEY TECH" height="350" src="https://i.ibb.co/chcdtBhT/images-34.jpg">
  
 
 # ғᴏʀᴋ ᴍʏ ʀᴇᴘᴏ
