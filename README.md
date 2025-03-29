@@ -1,16 +1,16 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&size=40&pause=1000&color=0000FF&center=true&vCenter=true&width=815&height=60&lines=🦅+▭+▬+▭+▬+▭+▬+▭+▬+▭+▬+▭+🐇)](https://git.io/typing-svg) 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=100&pause=900&color=1BAFBAFF&center=true&width=1100&height=150&lines=𝗗𝗔𝗥𝗞-+𝗠𝗗+BOT" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=100&pause=900&color=1BAFBAFF&center=true&width=1100&height=150&lines=DARK-+MD+BOT" alt="Typing SVG" /></a>
   </p>
 
 
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=DAA520&center=true&width=910&height=100&lines=𝗗𝗔𝗥𝗞+𝗨𝗖𝗘𝗬+𝗧𝗘𝗔𝗖𝗛+;KEEP+USING+𝗗𝗔𝗥𝗞+𝗠𝗗" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Black+Ops+One&size=50&pause=1000&color=DAA520&center=true&width=910&height=100&lines=DARK+UCEY+TECH+;KEEP+USING+DARK+MD" alt="Typing SVG" /></a>
   </p>
  
   
 <a href="[[https://whatsapp.com/channel/0029VarDt9t30LKL1SoYXy26]">
- <img alt="𝗗𝗔𝗥𝗞-𝗨𝗖𝗘𝗬 𝗧𝗘𝗖𝗛" height="350" src="https://files.catbox.moe/w5xf3f.jpg">
+ <img alt="DARK-UCEY TECH" height="350" src="https://files.catbox.moe/w5xf3f.jpg">
  
 
 # ғᴏʀᴋ ᴍʏ ʀᴇᴘᴏ
