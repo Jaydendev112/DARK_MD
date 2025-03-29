@@ -19,7 +19,7 @@
 
 # ɢᴇᴛ ᴘᴀɪʀ ᴄᴏᴅᴇ
 </a></p>
-- <a href="https://dark-md-sessions.onrender.com/pair"><img title="TAP FOR SESSION ID" src="https://img.shields.io/badge/LOG IN FOR SESSION ID-h?color=pink&style=for-the-badge&logo=porsche&logoColor=pink" width="240" height="38.45"/></a></p>
+- <a href="https://dark-md-sessions.onrender.com/pair"><img title="TAP FOR SESSION ID" src="https://img.shields.io/badge/TAP FOR SESSION ID-h?color=pink&style=for-the-badge&logo=porsche&logoColor=pink" width="240" height="38.45"/></a></p>
 
 # ᴄʀᴇᴀᴛᴇ ʜᴇʀᴏᴋᴜ
 
